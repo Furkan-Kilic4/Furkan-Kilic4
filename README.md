@@ -8,7 +8,6 @@
 
 - 📫 How to reach me **furkan.samet888@gmail.com**
 
-<h3 align="left">Connect with me: furkan.samet888@gmail.com </h3>
 <p align="left">
 </p>
 
